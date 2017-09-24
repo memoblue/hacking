@@ -1,3 +1,3 @@
-# memohacks
+# memo hacks
 
-Just a bunch of random stuff for learning
+Just a bunch of random stuff to lear more stuff…
